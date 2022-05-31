@@ -1,6 +1,6 @@
 # Heroes
 
-### Reyna Luisina
+### Reyna Luisina Edad: 24 Ciudad: Villa la Angostura. 
 
 ### Abril Nuñez
 
