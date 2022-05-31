@@ -1,7 +1,7 @@
 # Heroes
 
-### Reyna Luisina
+### Reyna Luisina Edad: 24 Ciudad: Villa la Angostura. 
 
-### Abril Nuñez
+### Abril Nuñez. 18 años. San Miguel, Buenos Aires.
 
 ### Hernan Moneta - 39 años - Rosario
